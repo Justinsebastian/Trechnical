@@ -1,1 +1,1 @@
-# Trechnical
+# Technical
